@@ -1,0 +1,2 @@
+# skripsifradiyan
+fradiyan khamid
